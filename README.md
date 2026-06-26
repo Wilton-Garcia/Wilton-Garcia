@@ -12,4 +12,7 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Wilton-Garcia&icon=0&color=0)](https://visitcount.itsvg.in)
 
+Follow on [LinkedIn](https://www.linkedin.com/in/wilton-garcia25/)
+
+
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
